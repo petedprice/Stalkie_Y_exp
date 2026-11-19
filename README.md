@@ -1,1 +1,0 @@
-# Stalkie_Y_exp
